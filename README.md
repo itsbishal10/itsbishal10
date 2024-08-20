@@ -3,7 +3,6 @@
 - 💞️ I’m looking to collaborate on any Native Android Development Project
 - 📫 How to reach me :
 - Email: bishalsharnma7777@gmail.com
-- 😄 Pronouns: 
 - ⚡ Fun fact: A quizzer 
 
 <!---
